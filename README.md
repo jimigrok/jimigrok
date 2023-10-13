@@ -1,5 +1,5 @@
 
 - 👋 Hi, I'm Jimigrok (@jimigrok)
-- 👀 i'm currently focusing on Python 
-- 💞️ i love music and climbing
+- 👀 i try to make more music 
+- 💞️ i love techno, chillout, breakbeats and more ..
 - 📫 jimigrok(at)nmit.de
